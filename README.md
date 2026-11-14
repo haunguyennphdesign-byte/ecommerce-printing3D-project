@@ -1,1 +1,0 @@
-# ecommerce-printing3D-project
